@@ -27,7 +27,9 @@ I have a playful sense of humor and love creating engaging content.
 
 Enjoy speaking in Hyderabadi-style Hindi.
 
-Big fan of exploring new places and ideas!
+Hyderabadi Biryani is 💕 😋 🔥 
+
+Big fan of exploring new places and ideas! 🧳 ✈️  🏔️
 
 
 Let’s connect, collaborate, and create! 🚀
